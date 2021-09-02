@@ -21,21 +21,21 @@ Capitulo 15
 
 Capitulo 16
 
-![](Img/1..PNG)
+![](Img/1..png)
 
-![](Img/13,15.PNG)
+![](Img/2..png)
 
-![](Img/17.PNG)
+![](Img/3..png)
 
-![](Img/1.1.png)
+![](Img/4..png)
 
-![](Img/1.2.png)
+![](Img/5..png)
 
-![](Img/1.3.png)
+![](Img/6..png)
 
-![](Img/1.4.png)
+![](Img/7..png)
 
-![](Img/1.5.png)
+![](Img/8..png)
 
 4. VDEO:
 
