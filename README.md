@@ -17,9 +17,14 @@
 
 Capitulo 15
 
+![](Img/57,59,61,63.PNG)
+Cap 16
+![](Img/67,2,4.PNG)
+
+![](Img/6,8.PNG)
 
 
-Capitulo 16
+![](Img/12.PNG)
 
 ![](Img/1..png)
 
