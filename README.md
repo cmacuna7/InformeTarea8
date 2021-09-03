@@ -38,6 +38,19 @@ Capitulo 15
 
 
 ![](Img/57,59,61,63.PNG)
+
+![](Img/29-33.jpg)
+
+![](Img/35.jpg)
+
+![](Img/39.jpg)
+
+![](Img/47.jpg)
+
+![](Img/49.jpg)
+
+![](Img/51.jpg)
+
 Cap 16
 ![](Img/67,2,4.PNG)
 
