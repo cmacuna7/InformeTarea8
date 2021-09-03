@@ -16,6 +16,7 @@
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS PROBLEMAS
 
 Capitulo 15
+
 ![](Img/deber8-1.jpg)
 
 ![](Img/deber8-2.jpg)
