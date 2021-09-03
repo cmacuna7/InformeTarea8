@@ -15,7 +15,7 @@
 
 2. Marco Teorico 
 
-
+![](Img/marco.jpg)
 
 
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS PROBLEMAS
