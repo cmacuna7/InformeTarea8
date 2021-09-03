@@ -16,6 +16,20 @@
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS PROBLEMAS
 
 Capitulo 15
+![](Img/deber8-1.jpg)
+
+![](Img/deber8-2.jpg)
+
+![](Img/deber8-3.jpg)
+
+![](Img/deber8-4.jpg)
+
+![](Img/deber8-5.jpg)
+
+![](Img/deber8-6.jpg)
+
+![](Img/deber8-7.jpg)
+
 
 ![](Img/57,59,61,63.PNG)
 Cap 16
